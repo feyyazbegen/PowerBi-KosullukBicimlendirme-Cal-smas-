@@ -1,0 +1,1 @@
+# PowerBi-KosullukBicimlendirme-Cal-smas-
